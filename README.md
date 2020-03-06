@@ -1,2 +1,2 @@
 # hello-world-aint-enough
-...yet another venture reshufle
+...yet another venture reshuffle
